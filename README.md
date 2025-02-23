@@ -1,5 +1,12 @@
-# TP1DPBO2025C1
-Saya Abdullozoda Yahyo dengan NIM 2313368 jujur tidak akan curang atau beri kecurangan ke orang lain Amin.🤲🏼
+# TP1DPBO2025C1Saya 
+Saya Yahyo Abdullozoda dengan NIM 2313368 mengerjakan Tugas Praktikum 1 dalam mata kuliah Desain dan Pemrograman Berorientasi Objek untuk keberkahanNya maka saya tidak melakukan kecurangan seperti yang telah dispesifikasikan. Aamiin.🤲🏼🤲🏼🤲🏼
+
+
+
+
+
+
+
 
 
 **Outpu**
